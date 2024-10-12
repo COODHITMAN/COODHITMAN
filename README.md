@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @COODHITMAN
+- 👋 Hi, I’m @blackcood 
 - 👀 I’m interested in HACKING
 - 🌱 I’m currently learning IN PREP SCHOOL
 - 💞️ I’m looking to collaborate on HACK
